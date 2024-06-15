@@ -1,2 +1,0 @@
-# psotnic.com
-psotnic.com
